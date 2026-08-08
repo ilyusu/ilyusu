@@ -1,8 +1,8 @@
-ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟc+h all !! im not very talkative but i would love to be friends ^^       
+ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟc+h all !! im not very talkative but i would love to be friends ^^       
 
 
 ᅟᅟ
-![heh](https://i.pinimg.com/1200x/6d/4f/77/6d4f775abbcc184d68524824878f3c08.jpg)
+ᅟᅟᅟᅟ![heh](https://i.pinimg.com/736x/ab/28/8f/ab288f3ec2e3f354ba0296cc34b4a9c6.jpg)
 
 ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟ[𝚜𝚒𝚐𝚗 𝚊𝚝𝚊 !!](https://ilyusu.atabook.org/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
