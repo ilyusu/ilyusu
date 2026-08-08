@@ -1,5 +1,4 @@
-hi im remaking this ⠀
-       
+ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟc+h all !! im not very talkative but i would love to be friends ^^       
 
 
 ᅟᅟ
