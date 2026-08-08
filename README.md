@@ -1,5 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=ilyusu)
-
+![](https://komarev.com/ghpvc/?username=your-github-username&label=♡)
 ᅟᅟᅟᅟᅟᴄ+ʜ ᴀʟʟ !! ɪᴍ ɴᴏᴛ ᴠᴇʀʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ʙᴜᴛ ɪ ᴡᴏᴜʟᴅ ʟᴏᴠᴇ ᴛᴏ ʙᴇ ꜰʀɪᴇɴᴅꜱ ^^
 
 
