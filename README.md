@@ -1,4 +1,4 @@
-ᅟᅟᅟᅟᅟc+h all !! im not very talkative but i would love to be friends ^^       
+ᅟᅟᅟᅟᅟᴄ+ʜ ᴀʟʟ !! ɪᴍ ɴᴏᴛ ᴠᴇʀʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ʙᴜᴛ ɪ ᴡᴏᴜʟᴅ ʟᴏᴠᴇ ᴛᴏ ʙᴇ ꜰʀɪᴇɴᴅꜱ ^^
 
 
 ᅟᅟ
