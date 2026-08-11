@@ -1,4 +1,4 @@
-ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟ![](https://komarev.com/ghpvc/?username=ilyusu&label=♡)
+ᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟᅟ![](https://komarev.com/ghpvc/?username=ilyusu&label=♡&color=8597ad)
 ᅟᅟᅟ
 
 ᅟᅟᴄ+ʜ ᴀʟʟ !! ɪᴍ ɴᴏᴛ ᴠᴇʀʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ʙᴜᴛ ɪ ᴡᴏᴜʟᴅ ʟᴏᴠᴇ ᴛᴏ ʙᴇ ꜰʀɪᴇɴᴅꜱ ^^
